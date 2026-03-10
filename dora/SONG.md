@@ -26,15 +26,7 @@
 Это было так глупо
 Ведь за спиною моей
 Стояла твоя подруга (Подруга)
-See upcoming pop shows
-Get tickets for your favorite artists
-You might also like
-Ice + Alabaster
-9mice & Kai Angel
-OMEGA
-PHARAOH & Destroy Lonely
-МИР ГОРИТ (WORLD IS BURNING)
-Oxxxymiron
+
 [Припев]
 Всё потому, что Дора — дура
 Супердура, Дора — дура
